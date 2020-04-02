@@ -1,4 +1,4 @@
 # example
 example repository
 
-I want to play Bigspin!!
+I want perfect Nocomply-Biggerspin!
